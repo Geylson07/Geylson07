@@ -3,12 +3,10 @@
 - 🌱 atualmente estou cursando o ensino medio 1A
 - 💞️ ja tenho dona kkk 
 - 📫 Moro no panorama e sooo
-- 😄 conhecido como girela
+- 😄 conhecido como gerela
 - ⚡ corro que nem gazela ksksks meus amigos falam mais nao acredito 
 
-<!--![image](https://github.com/user-attachments/assets/5f03094f-aacc-4923-b270-7ec48b53b97f)
-
+![image](https://github.com/user-attachments/assets/69c89dd1-3720-4cc0-ab97-c495d6c2fd3b)
 Geylson07/Geylson07 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-![image](https://github.com/user-attachments/assets/a2164479-1b9a-4597-83bd-381220573eed)
