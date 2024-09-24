@@ -1,9 +1,9 @@
 - 👋 Eae eu sou o Geylson nogueira
-- 👀 atualmente curtir a vida enquanto ainda tenho
+- 👀 atualmente curtindo a vida enquanto ainda tenho
 - 🌱 atualmente estou cursando o ensino medio 1A
 - 💞️ ja tenho dona kkk 
 - 📫 Moro no panorama e sooo
-- 😄 conhecido como gerela
+- 😄 conhecido como girela
 - ⚡ corro que nem gazela ksksks meus amigos falam mais nao acredito 
 
 ![image](https://github.com/user-attachments/assets/69c89dd1-3720-4cc0-ab97-c495d6c2fd3b)
