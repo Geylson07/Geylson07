@@ -6,7 +6,4 @@
 - 😄 conhecido como gerela
 - ⚡ corro que nem gazela ksksks meus amigos falam mais nao acredito 
 
-![image](https://github.com/user-attachments/assets/69c89dd1-3720-4cc0-ab97-c495d6c2fd3b)
-Geylson07/Geylson07 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+https://images.app.goo.gl/yMgXkkrYHAFrCLLy7
