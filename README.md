@@ -6,4 +6,4 @@
 - 😄 conhecido como gerela
 - ⚡ corro que nem gazela ksksks meus amigos falam mais nao acredito 
 
-https://images.app.goo.gl/yMgXkkrYHAFrCLLy7
+![Uploading image.png…]()
