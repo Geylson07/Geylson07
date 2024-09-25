@@ -6,4 +6,4 @@
 - 😄 conhecido como gerela
 - ⚡ corro que nem gazela ksksks meus amigos falam mais nao acredito 
 
-https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fsearch%2Fcristiano-ronaldo-gifs&psig=AOvVaw2e4dUCQYc7jAD0TdFisciC&ust=1727362066783000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCPCc3aWr3ogDFQAAAAAdAAAAABAE
+![image](https://github.com/user-attachments/assets/eb749ec7-101d-475a-ba6f-6987ee72f1fb)
