@@ -7,3 +7,4 @@
 - ⚡ corro que nem gazela ksksks meus amigos falam mais nao acredito 
 
 ![image](https://github.com/user-attachments/assets/eb749ec7-101d-475a-ba6f-6987ee72f1fb)
+![image](https://github.com/user-attachments/assets/eb749ec7-101d-475a-ba6f-6987ee72f1fb)
